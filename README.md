@@ -9,4 +9,4 @@ molotpravdu
 
 Удачи!
 
-Скачать здесь https://mega.co.nz/#!cExwSB5C!pQesjKIvTTOUazNrHPHmXxvsYZzN2ohH0FVj3-3RBdE
+Скачать здесь http://rghost.net/download/53995321/ba8a7b81b41c014cda618c7e892b5574223867d0/molotpravdu.rar
